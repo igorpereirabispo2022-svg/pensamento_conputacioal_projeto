@@ -1,1 +1,1 @@
-# pensamento_conputacioal_projeto
+# pensamento_computacioal_projeto
